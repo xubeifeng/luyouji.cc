@@ -6,7 +6,7 @@
 网址1: https://luyouji.cc
 
 #### 请您记住我们的终极通讯地址
-邮件1: xubeifeng@proton.me
+邮件1: beimenchuixue@proton.me
 
 陆游记感谢您的支持，未来若有任何问题或建议，也请随时与我们联络，谢谢您。
 
