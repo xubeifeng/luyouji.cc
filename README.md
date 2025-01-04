@@ -16,7 +16,7 @@ AI拖衣、AI作图、AI涣脸（需番墙）
 https://shanjierenyi.xyz
 
 AI后宫（聊天，文生图）
-https://shanjierenyi.xyz
+https://aihougong.com
 
 TG群
 https://t.me/luyouji
