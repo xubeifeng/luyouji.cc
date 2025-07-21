@@ -6,7 +6,7 @@ https://luyouji.xyz
 https://luyouji.fun
 
 图生视频，AI作图、AI脱衣、AI作图、AI换脸
-https://guotiai666.art
+https://guotiai6666.xyz 
 
 图生视频，AI脱衣，AI作图、AI换脸
 https://shanjierenyi.art
