@@ -9,7 +9,7 @@ https://luyouji.fun
 https://guotiai6666.xyz 
 
 图生视频，AI脱衣，AI作图、AI换脸
-https://shanjierenyi.art
+https://shanjierenyi-rukou.art
 
 AI后宫、AI女友（聊天，文生图）
 https://aihougong.xyz
